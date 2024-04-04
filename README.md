@@ -1,4 +1,4 @@
 # 3DM.github.io
 This website was designed by FahmieyXs7
 
-http://fahmiey3dm.io/
+https://fahmiey1337.github.io/Fahmiey3DM/
